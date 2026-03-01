@@ -1,4 +1,4 @@
-# Hi, I'm Samet K4YHAN!
+# Hi, I'm Samet KAYHAN!
 
 Welcome to my profile! Here's a little about me:
 
