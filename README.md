@@ -29,7 +29,7 @@ I am a passionate developer with expertise in **JavaScript**, **TypeScript**, an
 I am currently seeking job opportunities to further my career and contribute to innovative projects. If you are looking for a dedicated and skilled developer, feel free to reach out!
 
 ## Find Me Online
-- [My Portfolio](https://sametk4yhan.com)
+- [My Portfolio](https://sanalyerim.com)
 - [LinkedIn Profile](https://linkedin.com/in/sametk4yhan) 
 
 **Let's connect!**
